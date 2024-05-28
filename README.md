@@ -1,3 +1,2 @@
-# FRONT END DEVELOPER
-
-Hello, this is a project on GitHub, where I show my software designs in the front end.
+# Important Note
+Hello, this is a project on GitHub, where I showcase my software designs on the front end.
