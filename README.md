@@ -39,4 +39,4 @@ Here you can find all my official profiles, platforms, and ways to support my wo
 
 ---
 
-#### 🛡️ All rights reserved © ilyes benamara | 2025
+#### 🛡️ All rights reserved © ilyes benamara
