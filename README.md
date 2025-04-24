@@ -1,7 +1,7 @@
 # 💻 Designer Credit - ilyes benamara
 
-Welcome! I'm **ilyes benamara** — a passionate developer, content creator, and cybersecurity enthusiast.  
-Here you can find all my official profiles, platforms, and ways to support my work 👇
+Hi there! I'm **ilyes benamara** — a creative **Web Developer** with a passion for building sleek, functional, and secure digital experiences.  
+Explore my platforms below 👇
 
 ---
 
